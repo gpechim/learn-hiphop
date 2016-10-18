@@ -15,3 +15,17 @@
  [Knee Slide](https://www.youtube.com/watch?v=_mF5s-JjJ8Q)
  
  [Moonwalk in Place](https://www.youtube.com/watch?v=6axn4scT9fg)
+
+ [Bart simpsom](https://www.youtube.com/watch?v=1yXiUco7gHE)
+
+ [Roger rabbit](http://www.youtube.com/watch?v=pua9UszdO24)
+
+ [Running man](https://www.youtube.com/watch?v=lYpRasK4c9k)
+
+ [SpongeBob](https://www.youtube.com/watch?v=sOj9ThU_6qk)
+
+ [Cabbage pacth](https://www.youtube.com/watch?v=N4STZCPuhf0)
+
+ [Rebook](https://www.youtube.com/watch?v=ApJoU1Jbrkw)
+
+ [Butterfly](https://www.youtube.com/watch?v=rKf6jsYlnN8)
