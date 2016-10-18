@@ -2,7 +2,9 @@
  All the steps you need to dance hip hop \o/
 
 ## Steps
- [Heel Toe / Happy Feet](https://www.youtube.com/watch?v=A-9RWQc4tzE)
+ [Heel Toe](https://www.youtube.com/watch?v=rOV-g2jMHxs)
+
+ [Happy Feet](https://www.youtube.com/watch?v=Rig-YmEveDY)
  
  [Knee Switch](https://www.youtube.com/watch?v=13nOtAml9Xo)
  
