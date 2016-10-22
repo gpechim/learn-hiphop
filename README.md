@@ -31,3 +31,11 @@
  [Rebook](https://www.youtube.com/watch?v=ApJoU1Jbrkw)
 
  [Butterfly](https://www.youtube.com/watch?v=rKf6jsYlnN8)
+
+ [Fila](https://www.youtube.com/watch?v=Tmdff2A38Qs)
+
+ [Wop](https://www.youtube.com/watch?v=XzmhNJ4ASbg)
+
+ [Monastery](https://www.youtube.com/watch?v=axF1HWTjAww)
+
+ [Criss cross](https://www.youtube.com/watch?v=_0B4MVqHK1k)
