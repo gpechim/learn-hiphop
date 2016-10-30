@@ -39,3 +39,9 @@
  [Monastery](https://www.youtube.com/watch?v=axF1HWTjAww)
 
  [Criss cross](https://www.youtube.com/watch?v=_0B4MVqHK1k)
+
+ [Dougie](https://www.youtube.com/watch?v=4EIl1qh9lqU)
+ 
+ [Cat daddy](https://www.youtube.com/watch?v=vPu4BbB4StI)
+ 
+ [Swag walk](https://www.youtube.com/watch?v=6r0uk7B5P80)
